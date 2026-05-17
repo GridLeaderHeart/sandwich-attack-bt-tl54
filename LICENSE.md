@@ -1,4 +1,4 @@
-# 
+# new bot de sniper MEV addons es el mejor bot de sniper MEV addons con back-running y escaneo de meme coins. Seguro, confiable y optimizado para estrategias MEV, sniper y arbitraje.
 
 
 
